@@ -1,0 +1,1 @@
+# cyberDiary.github.io
