@@ -1,1 +1,1 @@
-# cyberDiary.github.io
+https://cyberDiary.github.io
